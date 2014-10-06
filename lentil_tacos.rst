@@ -1,16 +1,16 @@
 Ingredients
 -----------
 
-2 cups water
-1 cup dried lentils
-2 tablespoons dried minced onion
-1/2 teaspoon dried minced garlic
-1/2 teaspoon ground cumin
-1/8 teaspoon hot pepper sauce
-1 small zucchini, chopped
-1 cup taco sauce
-1 cup shredded mozzarella
-8 tortillas
+*2 cups water
+*1 cup dried lentils
+*2 tablespoons dried minced onion
+*1/2 teaspoon dried minced garlic
+*1/2 teaspoon ground cumin
+*1/8 teaspoon hot pepper sauce
+*1 small zucchini, chopped
+*1 cup taco sauce
+*1 cup shredded mozzarella
+*8 tortillas
 
 To do:
 ------
