@@ -4,9 +4,13 @@ Yiddish varenigue
 **Dough**
 
   4 cups of flower
+  
   1 dessert spoon of butter
+  
   1 egg
+  
   ½ glass warm water
+  
   a pinch of salt
 
 Mix flower and butter by hand until the dough is smooth. Add the egg and mix. Dissolve the salt into the warm water and slowly poor it on the dough. Work dough thoroughly and spread it in a thin layer.
@@ -14,9 +18,13 @@ Mix flower and butter by hand until the dough is smooth. Add the egg and mix. Di
 **Filling**
 
   ½ kg ricotta
+  
   2 egg yolks
+  
   a pinch of salt
+  
   a pinch of sugar
+  
   cream
 
 Mix the ricotta, egg yolks, salt and sugar and mash it with a fork. Add just enough cream to make this mixture stick
