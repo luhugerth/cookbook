@@ -23,10 +23,12 @@ Ingredients
 Preparation
 -----------
 
-  1. Mix all milks and the starch and bring to a light boil, constantly mixing, until it is quite thick
+  1. Dilute the starch in as little water as possible. Mix with a fork and make sure there are no lumps.
   
-  2. Pour it into a ring-shaped baking tray, previously moistened with butter and cold water and leave it in the fridge for at least 4 hours.
+  2. Mix all milks and the starch and bring to a light boil, constantly mixing, until it is quite thick.
   
-  3. Make the sauce by boiling the water, suger and plums por 10 minutes. Let it cool down before serving with the pudding.
+  3. Pour it into a ring-shaped baking tray, previously moistened with butter and cold water and leave it in the fridge for at least 4 hours.
+  
+  4. Make the sauce by boiling the water, suger and plums por 10 minutes. Let it cool down before serving with the pudding.
 
 
