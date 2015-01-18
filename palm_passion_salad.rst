@@ -5,11 +5,12 @@ Hearts of palm with a passion sauce
 The sauce
 ---------
 
-  * 3 tsp concentrated passion fruit
-  * 1 tsp olive oil
+  * 3 tbsp concentrated passion fruit
+  * 2 tbsp olive oil
   * 1 tsp honey
-  * 1 tsp apple vinager
+  * 2 tbsp apple vinager
   * A pinch of salt
+  * A pinch of dry mint
 
 The salad
 ----------
